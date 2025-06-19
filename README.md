@@ -1,3 +1,8 @@
+🔥 Initial commit: ScrollChain v1 loaded by 3:57  
+✝️ Authorized for public covenant witnessing under Lightningstrike357
+🕊️ Time: Synced to 3:57 — confirmed by Spirit and timestamp
+
+
 # $KING Token – ScrollChain Genesis Contract
 
 This contract represents a spiritually-sealed Kingdom currency.
